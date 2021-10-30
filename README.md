@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Prasadnaw
 - 👀 I’m interested in Making Discord Bots
 - 🌱 I’m currently Busy On Making Something New
-- 💞️ I’m looking to collaborate on Discord Servers
+- ✌  I’m looking to collaborate on Discord Servers
 - 📫 How to reach me On Discord GamerPhase#9022
 
 <!---
